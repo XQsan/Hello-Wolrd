@@ -1,2 +1,2 @@
 # Hello-Wolrd
-hello world, my nameis ....
+hello world, my name is Xuan Quyen, i'm a newbie :)) 
